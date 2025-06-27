@@ -1,0 +1,17 @@
+adad
+a
+a
+a
+a
+ad
+d
+aw
+d
+ad
+aw
+d
+ad
+a
+d
+aw
+d
